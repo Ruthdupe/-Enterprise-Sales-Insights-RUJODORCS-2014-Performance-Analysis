@@ -187,4 +187,5 @@ Most assumptions were validated, but some unexpected performance came from the W
 - **Ruth Agbedeyi**  
   [LinkedIn Profile](https://www.linkedin.com/in/ruth-agbedeyi/)
 
-![Screenshot 2025-06-16 171932](https://github.com/user-attachments/assets/c3e709c0-9bcf-45eb-aaf8-cf0f23f839b1)
+![RUJODORCS Enterprises – Sales Performance Analysis (2014)](https://github.com/user-attachments/assets/81d2b800-4b1f-4269-8ca5-45c86df8481d)
+
